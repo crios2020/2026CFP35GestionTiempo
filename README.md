@@ -5,6 +5,7 @@
 - **Profe:** Carlos Rios - c.rios@bue.edu.ar
 - **Día:** Viernes 10:00 a 13:00 hs
 - **Meet:** https://meet.google.com/apo-fedn-cwv?pli=1
+- **Clases Grabadas:** https://www.youtube.com/playlist?list=PLKhXenFH1tQs
 
 
   
